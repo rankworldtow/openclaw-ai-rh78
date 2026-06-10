@@ -1,4 +1,4 @@
-# 
+# Actualizado OpenClaw scripts. Con asistente de voz y soporte comunitario — optimizado para el máximo rendimiento y eficiencia.
 
 
 
